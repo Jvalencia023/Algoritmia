@@ -1,3 +1,5 @@
+Pasos para hacer un tinto
+
 1.Pon el taza azul en la mesa.
 
 2.Llena la jarra con 300ml de agua y enciéndela.
